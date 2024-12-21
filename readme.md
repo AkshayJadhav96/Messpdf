@@ -1,1 +1,1 @@
-This is the mess menu pdf of College
+This is the mess menu pdf of College IITPKD.
